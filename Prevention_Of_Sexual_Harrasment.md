@@ -33,35 +33,35 @@ It's crucial to remember that sexual harassment can happen in a variety of conte
 
 If you face or witness any incident or repeated incidents of such behavior, it is important to take appropriate action.
 
-### Document the incidents
+**Document the incidents**
 
 Take note of the details of the incidents, including dates, times, locations, descriptions of the behavior, and the names of any witnesses present.
 
-### Report the incidents 
+**Report the incidents** 
 
 Follow the reporting procedures established by your organization or institution. Report the incidents to the appropriate authority, such as a supervisor, human resources department, or designated individual responsible for handling such complaints. If you are unsure whom to report to, consult your organization's policies or seek guidance from a trusted colleague or supervisor.
 
-### Provide factual information 
+**Provide factual information** 
 
 When reporting, provide a clear and factual account of the incidents you witnessed or experienced. Include any evidence or documentation you have collected.
 
-### Seek support
+**Seek support**
 
 Reach out to a support network, such as friends, family, or colleagues, to discuss the situation and seek emotional support. Consider utilizing counseling services or employee assistance programs provided by your organization, if available.
 
-### Maintain confidentiality, if desired
+**Maintain confidentiality, if desired**
 
 If you wish to maintain confidentiality, communicate your preference to the appropriate authority. In some cases, anonymous reporting channels may be available.
 
-### Ensure your safety
+**Ensure your safety**
 
 If you feel threatened or unsafe, remove yourself from the situation and find a safe space.
 
-### Cooperate with investigations
+**Cooperate with investigations**
 
 If an investigation is initiated, cooperate fully by providing any additional information or evidence you may have. Be honest and provide accurate information to aid in the investigation process.
 
-### Seek legal advice, if necessary
+**Seek legal advice, if necessary**
 
 If the incidents persist or the response from your organization is inadequate, you may want to seek legal advice to understand your rights and explore further options.
 
